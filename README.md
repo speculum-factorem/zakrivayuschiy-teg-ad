@@ -1,0 +1,1 @@
+https://github.com/speculum-factorem/zakrivayuschiy-teg-ad.git
